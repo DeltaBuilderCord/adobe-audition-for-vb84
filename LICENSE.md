@@ -1,4 +1,4 @@
-
+top Adobe Audition for macOS Plugin | video-stabilization + multi-cam-editing offers the most advanced Adobe Audition for macOS plugin, with video-stabilization and
 
 
 
